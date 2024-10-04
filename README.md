@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Telegram: @jlcrK
 - 😄 Pronouns: Sr
-- ⚡ Fun fact: I discovered free energy with tides & moon cycles
+- ⚡ Fun fact: I tend to forget there is no free energy.
 
 Also I was trapped on my self for a long time.
