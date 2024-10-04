@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @jcurb00
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me Telegram: @jlcrK
+- 😄 Pronouns: Sr
+- ⚡ Fun fact: I discovered free energy with tides & moon cycles
+
+Also I was trapped on my self for a long time.
